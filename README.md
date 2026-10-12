@@ -1,0 +1,2 @@
+# premium-canoe-building-001-canoe-kayak-building-worksho
+Stop losing your workshop notes in a pile of sawdust and blueprints. The Canoe &amp; Kayak Building Workshop — Notion Template gives you a single, digital command center to track every plank, stitch, and stage across multiple builds.  This template solves the chaos of managing simultaneous canoe and kayak building projects. It centralizes material list
